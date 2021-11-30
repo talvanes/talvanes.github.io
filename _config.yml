@@ -7,7 +7,7 @@
 # https://learnxinyminutes.com/docs/yaml/
 
 title: Blog do Talba's
-description: Outro _insight_ sobre o mundo à minha volta. Somente a minha visão de mundo.
+description: Outro insight sobre o mundo à minha volta. Somente a minha visão de mundo.
 github_username: talvanes
 
 # Email and twitter are optional:
@@ -15,7 +15,7 @@ email: talvanes_sousa@hotmail.com
 twitter_username: TalvanesOficial
 
 # Set this to true to get LaTeX math equation support
-use_math:
+use_math: true
 
 # Add your Google Analytics ID here if you have one and want to use it
 google_analytics:
