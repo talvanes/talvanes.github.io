@@ -4,19 +4,19 @@ _"Vamos criar memes?"_ Sim, vamos criar memes. Mas, antes que alguém se pergunt
 
 Algumas de suas principais aplicações incluem situações do cotidiano, nicho ou anedota de caráter político. Por exemplo, situação em que o marido esquece a toalha na cama e sua esposa fica chateada tal que prontamente expressa desaprovação:
 
-[situação do cotidiano]
+[![eu-sei-que-esqueci-a-toalha-em-cima-da-cama-mas-nao-precisa-me-ignorar-poxa-425592-1.jpg](https://i.postimg.cc/tRz1jdLP/eu-sei-que-esqueci-a-toalha-em-cima-da-cama-mas-nao-precisa-me-ignorar-poxa-425592-1.jpg)](https://postimg.cc/QVHNg7Nx)
 
 Outro caso envolve um assunto em voga no momento, no mínimo polêmico. É o tal _"passaporte de vacina"_, símbolo do programa globalista de redução da população mundial, o qual prega, entre outros, segregação da sociedade com base em "critério de saúde":
 
-[anedota política]
+[![fui-demitido-por-que-voce-nao-tem-o-passaporte-de-vacina-425152-1.jpg](https://i.postimg.cc/3JJkJ4Tq/fui-demitido-por-que-voce-nao-tem-o-passaporte-de-vacina-425152-1.jpg)](https://postimg.cc/7bdHKLb1)
 
-Segundo usuária, o homem na foto _"passou pelo teste da marca da besta"_.
+Segundo usuária de um dos grupos no WhatsApp que estou seguindo, o homem na foto _"passou pelo teste da marca da besta"_.
 
 Existem, ainda, memes da cultura pop:
 
-[cultura pop]
+[![not-the-pavlovas-391211-1.jpg](https://i.postimg.cc/dthgcF1y/not-the-pavlovas-391211-1.jpg)](https://postimg.cc/qzd1292J)
 
-A boa notícia é que você pode criar seus memes! Um forma fácil de fazê-lo é acessando [o link do Meme Generator](https://meme-generator.com/). Ali, você pode escolher uma foto, escrever umas frases e voilà... **Meme quentinho do forno!** Você ainda poderá [dar um Google](https://www.google.com/search?q=meme+generator&oq=meme+gene&aqs=edge.0.0i433i512j69i64j0i512l7.6210j0j1&sourceid=chrome&ie=UTF-8), se você quiser.
+A boa notícia é que você pode criar seus memes! Um forma fácil de fazê-lo é acessando [o link do Meme Generator](https://meme-generator.com/). Ali, você pode escolher uma foto, escrever umas frases de efeito e voilà... **Meme quentinho do forno!** Você ainda poderá [dar um Google](https://www.google.com/search?q=meme+generator&oq=meme+gene&aqs=edge.0.0i433i512j69i64j0i512l7.6210j0j1&sourceid=chrome&ie=UTF-8) para mais opções, se você assim desejar.
 
 ---
 
