@@ -12,10 +12,10 @@ Outro exemplo "triste" foi um certo senador da CPI da palhaçada, cara de capiva
 
 ---
 
-Para falar a verdade, a vergonha é nossa, como eleitoros brasileiros. Cada um em suas regiões foi responsável por colocar esses elementos ali através do voto, e eles sabem disso, Riem de nós, pois somos altruístas demais. Contudo, isso está mudando, e mudando rápido.
+Para falar a verdade, a vergonha é nossa, como eleitores brasileiros. Cada um em suas regiões foi responsável por colocar esses elementos ali através do voto, e eles sabem disso, Riem de nós, pois somos altruístas demais. Contudo, isso vai mudando, e mudando rápido.
 
-Muitos dos políticos que estão no poder agrupam-se em coletivos. A máfia dos partidos é o maior exemplo disso. Colocam-se em um pedestal tal que acham que os indivíduos devem-lhes alguma coisa; porém, o brasileiro médio está acima disso e já não liga mais para rótulos. Ademais, os coletivos estão falhando miseravelmente em informar as pessoas sobre o que acontece ao redor; já que estamos na era da Internet, e cada pessoa pode informar-se por si própria, à sua maneira. Isso os derruba aos poucos. Terminou o monopólio da informação.
+Muitos dos políticos que estão no poder agrupam-se em coletivos. A máfia dos partidos é o maior exemplo disso. Colocam-se em um pedestal tal que acham que os indivíduos devem-lhes alguma coisa; porém, o brasileiro médio está acima disso e já não liga mais para rótulos. Ademais, os coletivos estão falhando miseravelmente em informar as pessoas sobre o que acontece ao redor, e já que estamos na era da Internet, cada pessoa pode informar-se por si própria, à sua maneira. Isso os derruba aos poucos. Terminou o monopólio da informação.
 
-Assim, chavões do tipo _"Qual é a sua turma?"_ não colam mais. Bolsonaro, por exemplo, está acima dos ditos "conservadores leite com pera dos bons costumes" e suas aventuras revolucionárias, dignas de Olavo de Carvalho e sua gangue (Marco Antonio Villa, tucano convicto, chamava-o de _"marginal da Virgínia"_), Allan dos Santos e cia. Logo, não deve nada a ninguém.
+Assim, chavões do tipo _"Qual é a sua turma?"_ não colam mais. Bolsonaro, por exemplo, está acima dos ditos "conservadores leite com pera dos bons costumes" e suas aventuras revolucionárias, dignas de Olavo de Carvalho e sua gangue (Marco Antonio Villa, tucano convicto, chamava-o de _"marginal da Virgínia"_ em tom de deboche), Allan dos Santos e cia. Logo, o capitão não deve nada a ninguém.
 
 As corporações que se cuidem, pois não viverão para sempre, assim como cada um de nós. Imortalidade é impossível, logo temos uma missão a cumprir na Terra.
