@@ -7,7 +7,6 @@ Ao chegar ali, jantei galeto com arroz, feijão, salada Caesar e porção de bat
 [![IMG-20211209-220750714.jpg](https://i.postimg.cc/MGJsGxbX/IMG-20211209-220750714.jpg)](https://postimg.cc/5Xp5PhrM)
 [![IMG-20211209-220757274.jpg](https://i.postimg.cc/TPjtLSC0/IMG-20211209-220757274.jpg)](https://postimg.cc/v1BrCPRx)
 [![IMG-20211209-220801140.jpg](https://i.postimg.cc/rm8QSJHk/IMG-20211209-220801140.jpg)](https://postimg.cc/yJbmKFBQ)
-[![2083568813910129878.jpg](https://i.postimg.cc/QxP4RcFQ/2083568813910129878.jpg)](https://postimg.cc/ZC8xNBFn)
 
 Mas o melhor de tudo foi um passeio na Av. Paulista -- basicamente um dos principais cartões postais da capital paulista --, com direito a pontos turísticos: o prédio da Gazeta, a FIESP, e o MASP estava um tanto além da vista. Embora não estivéssemos naquele museu, valeu a visita. Foi suficiente para mim. As fotos já estavam nos grupos da empresa. Um pouco antes disso, aproveitei para comprar roupas no shopping Pátio Paulista. Eu precisava disso!
 
@@ -17,7 +16,7 @@ Mas o que me emplogou mesmo foi a volta. Deixávamos o hotel para voltarmos para
 
 Chegando às quebradas, na Zona Norte de SP, mais precisamente entre Anhanguera e Baronesa, perto de Osasco, passávamos pelas instalações do SBT, _a TV mais feliz do Brasil_. A emissora de Sílvio Santos e da família Abravanel. Que coisa linda de Deus!
 
-[![2830313311949564273.jpg](https://i.postimg.cc/dVyHvDCz/2830313311949564273.jpg)](https://postimg.cc/jDRQ4xZX)
+[![2083568813910129878.jpg](https://i.postimg.cc/QxP4RcFQ/2083568813910129878.jpg)](https://postimg.cc/ZC8xNBFn)
 
 Próximo a Jundiaí, outro cartaz igualmente subjetivo aparecia ali, com os dizeres: _"O Brasil piorou"_. Piorou como? E por quê? Não explicam, né? Mamãe explicou-me que em São Paulo quase todos os políticos são contra o Governo Federal; tudo porque o presidente agora era Bolsonaro.
 
